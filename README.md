@@ -1,3 +1,3 @@
-# preingeneria-uc-aeronautica-
+# preingeneria-uc-aeronáutica-
 taller
 :D
